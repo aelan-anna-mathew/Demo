@@ -1,2 +1,2 @@
 # project
-hii all I a Aelan
+hii all I am Aelan
